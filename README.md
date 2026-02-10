@@ -58,7 +58,7 @@
 ### 📞 Contact Us
 
 🌐 **Website:** [www.mahadmanpowers.co.in](https://www.mahadmanpowers.co.in/)  
-📧 **Email:** obaidurrahmanjaved@gmail.com  
+📧 **Email:** info@mahadmanpowers.co.in  
 💼 **LinkedIn:** [company/mahad-manpowers](https://linkedin.com/company/mahad-manpowers)  
 📱 **Instagram:** [@mahadmanpowerco](https://instagram.com/mahadmanpowerco)  
 🐦 **Twitter:** [@MahadManpowers](https://twitter.com/MahadManpowers)  
